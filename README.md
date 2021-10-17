@@ -1,0 +1,1 @@
+Andoyo, Mancao, Alapag
